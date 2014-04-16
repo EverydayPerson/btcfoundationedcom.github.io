@@ -1,4 +1,4 @@
-# How to Become a Member of the Committee
+# How to Become a Member of the Education Committee
 
 Thank you for your interest in the education committee of the Bitcoin Foundation. If you would like to become a member follow these steps:
 
